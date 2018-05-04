@@ -23,3 +23,9 @@
 -*Attaquons l'exercices!*
 
 -## *Sous l'ocean*
+
+**Y a pas d' court-bouillon,**
+
+*Pas* de soupe de poisson,
+
+Pas de *m*armiton.
