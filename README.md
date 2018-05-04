@@ -34,6 +34,13 @@ Le dernier homme sur terre à entendu **frapper à la porte**
 histoire courte d'horreur.
 Et donc tous ca c'est *flippant.*
 
+-*Quand j'étais petit j'avais un animale que j'adois mais ce fut cour car mon père le mangea*
+
+-*Pour maman c'était les chiens qu'elle mangeais*
+
+-*Et pour moi c'est les souris*
+
+
 blablabla  
 blablabla  
 blablabla
