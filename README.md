@@ -33,3 +33,7 @@ Pas de *m*armiton.
 Le dernier homme sur terre à entendu **frapper à la porte**
 histoire courte d'horreur.
 Et donc tous ca c'est *flippant.*
+
+C'est **flippant** on est d'acord mais restons dans le domaine de la *pensée*, de la *réflexion*.. au fond.. qui nous sommes ? Existons-nous vraiment ?
+
+Je code donc je suis ! *(Ce texte n'a aucun sens)*.
