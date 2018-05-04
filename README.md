@@ -54,3 +54,9 @@ blablabla
 3. Vis simplement..
 4. Donne plus.
 5. Attends moins.
+
+### _Message Ordinaire_
+
+1. Passes-moi le beurre
+1. Mange ta soupe
+1. Ne marches pas dans l'eau hein, dis!
