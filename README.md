@@ -44,3 +44,13 @@ Et donc tous ca c'est *flippant.*
 blablabla  
 blablabla  
 blablabla
+
+### _Message Spécial_
+
+> Pour être heureux / heureuse :
+
+1. Libère ton cœur de la haine.
+2. Libère ton esprit des inquiétudes.
+3. Vis simplement..
+4. Donne plus.
+5. Attends moins.
